@@ -1,3 +1,1 @@
-# DuraiDhyaan
-
-Dhyaan is my son
+# DuraiDhyaan!
